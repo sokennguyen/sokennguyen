@@ -7,4 +7,4 @@ So useful to me that I use them everyday? Haven't found this either.
 
 Proud of making them? Heck yeah!
 
-Especially these ⬇️ So I pinned them for you to see too (nobody asked, really).
+Especially these ⬇️ So I pinned them for you to see too 😄
